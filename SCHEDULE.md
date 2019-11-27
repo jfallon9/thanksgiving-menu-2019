@@ -3,11 +3,9 @@
 ## Day Before
 
 * mashed potatoes 
-* Do chicken legs in evening in slow cooker
 * stuffing mixture (without the broth and cranberries) 
 * dry brine the turkey breast
 * prep brussel sprouts (cut in half season with olive oil salt and pepper)
-* prep carrots (cut and season with olive oild salt and pepper)
 
 ## Day of 5PM Target Dinner Time
 
