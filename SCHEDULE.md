@@ -2,7 +2,6 @@
 
 ## Day Before
 
-* mashed potatoes
 * stuffing mixture (without the broth and cranberries)
 * dry brine the turkey breast
 * prep brussels sprouts (cut in half season with olive oil salt and pepper)
